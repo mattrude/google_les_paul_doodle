@@ -1,4 +1,4 @@
-Google.s .Les Paul. Doodle
+Google's 'Les Paul' Doodle
 ==========================
 
 Today is the birthday of Les Paul an american jazz and country guitarist, song writer and inventor. He is the inventor of electric guitar which made the rock and roll possible in the world of music.
